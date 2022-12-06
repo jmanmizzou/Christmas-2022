@@ -1,6 +1,6 @@
 ## Hey Mom! Welcome To My Page For Christmas This Year!
 
-*Please Click On Links To look and purchase items!*
+*Please Click On Links To look And Purchase Items!*
 
 ## The Computer
 
