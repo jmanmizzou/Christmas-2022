@@ -8,7 +8,7 @@ This is my parts list for my new computer that I would like to build, [please cl
 
 I know it is expenisve but this is what I was thinking about getting. If you can't get the whole computer, I would love it if you could buy the most expensive parts like the [GPU](https://www.amazon.com/MSI-GeForce-RTX-4080-16GB/dp/B0BL668N1X/ref=sr_1_1?crid=3NV32WN620Z90&keywords=NVIDIA+GeForce+RTX+4080+msi&qid=1670317554&sprefix=nvidia+geforce+rtx+4080+msi%2Caps%2C71&sr=8-1&ufe=app_do%3Aamzn1.fos.17f26c18-b61b-4ce9-8a28-de351f41cffb), [CPU](https://www.amazon.com/AMD-7900X-24-Thread-Unlocked-Processor/dp/B0BBJ59WJ4/ref=sr_1_1_sspa?crid=3QRKV5UHC6RQZ&keywords=AMD+Ryzen+9+7900X&qid=1670317584&sprefix=amd+ryzen+9+7900x%2Caps%2C76&sr=8-1-spons&ufe=app_do%3Aamzn1.fos.c3015c4a-46bb-44b9-81a4-dc28e6d374b3&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUFBQlM3TzFQNjBaNFUmZW5jcnlwdGVkSWQ9QTA0MDczMTcyVFdQWVFJT1YyUjlBJmVuY3J5cHRlZEFkSWQ9QTA5Njk3ODhERjJCRzc5MlFSRTImd2lkZ2V0TmFtZT1zcF9hdGYmYWN0aW9uPWNsaWNrUmVkaXJlY3QmZG9Ob3RMb2dDbGljaz10cnVl), and [motherboard](https://www.amazon.com/ASUS-ROG-X670E-Motherboard-Front-Panel/dp/B0BDTN8SNJ/ref=sr_1_1?crid=23MVUW89PSCEG&keywords=ASUS+X670E+ROG+Crosshair+Hero&qid=1670316863&sprefix=asus+x670e+rog+crosshair+hero%2Caps%2C82&sr=8-1). 
 
-If you bought the list of things through Micro Center, it would be much cheaper but you would have to pick up the parts from the store in St.Louis or KC becasue we dont have a Micro Center in Columbia. I would also accept a gift card from them as well!
+If you bought the list of things through Micro Center, it would be much cheaper but you would have to pick up the parts from the store in St. Louis or KC becasue we dont have a Micro Center in Columbia. I would also accept a gift card from them as well!
 
 ## Games 
 
