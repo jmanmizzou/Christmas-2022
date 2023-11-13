@@ -1,4 +1,7 @@
-## Hey Mom! Welcome To My Page For Christmas This Year!
+# I created this for Christmas last year for my parents. 
+
+
+## Welcome To My Page For Christmas This Year!
 
 *Please Click On Links To look And Purchase Items!*
 
